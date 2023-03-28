@@ -1,1 +1,1 @@
-i for complete the full stack open in 2023
+ complete the full stack open in 2023
